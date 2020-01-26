@@ -1,2 +1,2 @@
 # Luna- 
-Hi everyone! I'm Joshie Kimchi :). 
+Hi everyone! I'm Josh Kimchi :). 
